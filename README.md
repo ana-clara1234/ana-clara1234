@@ -15,5 +15,7 @@ Meu nome é Ana Clara, mass tenho a pele escura 👻
 ## **Pra entrar em contato comigo** 📬
 
 anac.silva6835@gmail.com
+
       **ou**
+
 @anac.11_
