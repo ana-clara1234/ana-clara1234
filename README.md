@@ -1,16 +1,15 @@
-## Hi there 👋
+## oiie, bem-vindo ao meu perfil💟
 
-<!--
-**ana-clara1234/ana-clara1234** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Ana Clara, mass tenho a pele escura 👻
 
-Here are some ideas to get you started:
+-sou estudante do alura
+-vou usar esse espaço pra mostrar meus projetos📈
+-estou em uma transição capilar💇‍♀️
+-amo o frio🌨️
+-minha cor favorita é roxo/lilás💜
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## **Pra entrar em contato comigo** 📬
+
+anac.silva6835@gmail.com
+      ##**ou**
+@anac.11_
