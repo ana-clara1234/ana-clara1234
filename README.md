@@ -17,3 +17,5 @@ Meu nome é Ana Clara, mass tenho a pele escura 👻
 anac.silva6835@gmail.com
 
 @anac.11_
+
+![](https://media1.tenor.com/m/JItZMaGQTxMAAAAC/happy-money.gif)
