@@ -2,7 +2,7 @@
 
 Meu nome é Ana Clara, mass tenho a pele escura 👻
 
--sou estudante do alura
+-sou estudante do [Alura](https://www.alura.com.br)
 
 -vou usar esse espaço pra mostrar meus projetos📈
 
